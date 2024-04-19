@@ -1,3 +1,7 @@
+23-Male-German Pronouns: She/It      <br/>
+Studies Computer Science             <br/>
+Females are weird D:                 <br/>
+                                     <br/>
 https://youtu.be/Cup_dpJ8CYQ?t=61    <br/>
 https://youtu.be/u_CeCR16-cc?t=535   <br/>
 https://youtu.be/bhMigKaXjX0?t=552   <br/>
