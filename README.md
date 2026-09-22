@@ -1,6 +1,6 @@
-25-Male-German                       <br/>
+26 Male German                       <br/>
 Studies Computer Science             <br/>
-Females are weird D:                 <br/>
+Females are scarry D:                <br/>
                                      <br/>
 https://youtu.be/Cup_dpJ8CYQ?t=61    <br/>
 https://youtu.be/u_CeCR16-cc?t=535   <br/>
